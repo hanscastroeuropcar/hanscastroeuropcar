@@ -1,1 +1,1 @@
-Have a nice Thursday!
+Have a nice weekend!
